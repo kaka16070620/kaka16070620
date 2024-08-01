@@ -30,7 +30,13 @@ Instagram ⭐💜
 
 ### informações 
 
+
+
 •Estou cursando curso tecnico em adimistração na Etec
+
+
 •Estou cursando curso de adimistração na NetBrasil
+
+
 •Estou fazendo ensino médio no 9 de Julho 
 
